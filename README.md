@@ -1,1 +1,0 @@
-# Bayessowska-Analiza-danych-2026-2025-poprawione
